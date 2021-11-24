@@ -10,3 +10,10 @@
 ### Support or Contact
 
 作者新浪微博：[Link](https://weibo.com/u/5804614520?profile_ftype=1&is_all=1#_0)
+
+### 阅读更多：
+##### 不吝13：
+[Link](https://jily18.github.io/bulin13.github.io/)
+
+##### 第十二夜下： 
+[Link](https://jily18.github.io/ttn.github.io/)
